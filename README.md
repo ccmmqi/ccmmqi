@@ -1,5 +1,5 @@
 # Catalina Quispe Ipurre
-**Enterprise Backend Engineer | Systems Engineer | Computer Engineer**
+**Enterprise Software Engineer | Systems Engineer | Computer Engineer**
 
 📍 Recanati, Italy | 🌍 Open to International Relocation & Remote Opportunities
 
